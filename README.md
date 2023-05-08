@@ -1,0 +1,3 @@
+Download Link: https://assignmentchef.com/product/solved-solved-via-survey-report
+<br>
+VIA Survey Report on my Personal Strengths By taking the VIA survey, I learnt that my five highest strengths were Creativity, Teamwork, Social intelligence, Leadership, and Self-regulation. I think I scored high on these five strengths since I enjoy working with other individuals as a team in each project that I undertake, I prefer learning or doing projects as a group rather than alone. I like doing my daily projects in groups because I do have a feeling that team work will help me understand what I need
